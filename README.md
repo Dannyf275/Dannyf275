@@ -4,7 +4,7 @@
 
 - 🔭 Available for any interesting project **doing volunteer coding and teaching**
 
-- 👯 I’m looking to collaborate on **anything interesting**
+- 👯 I’m looking to collaborate on **anything**
 
 - 💬 Ask me about **everything**
 
